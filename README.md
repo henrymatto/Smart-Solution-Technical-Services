@@ -43,7 +43,7 @@ This project is licensed under the **Henry Matto**.
 
 For business inquiries or collaboration:
 
-**henrymatto.dev@gmail.com**  
+**aptechstudenthenry@gmail.com**  
 **+92-344-3066788**
 
 ---
